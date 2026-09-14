@@ -1,2 +1,5 @@
-please interact with extreme caution.. 
-I'm tired of everything I'm very sensitive and I don't want to hurt more people. please I hate myself go away stop harassing me, if you don't like me block me and leave me alone. 
+<img width="1007" height="603" alt="ezgif-2ff4b03082850735" src="https://github.com/user-attachments/assets/d59b076b-1693-4524-b80d-4cd8e41c021f" />
+
+`𝑷𝒍𝒆𝒂𝒔𝒂𝒏𝒕𝒓𝒊𝒆𝒔! 𝒊 𝒂𝒎 𝒑𝒊𝒏𝒌𝒚 𝒐𝒓 𝒂𝒔 𝒎𝒚 𝒇𝒓𝒊𝒆𝒏𝒅𝒔 𝒄𝒂𝒍𝒍 𝒎𝒆 𝑮𝒂𝒊𝒍! 𝒂𝒏𝒅 𝑰 𝒂𝒎 𝒂 𝑫𝒓 𝑯𝒂𝒓𝒍𝒐𝒘 𝒚𝒖𝒎𝒆𝒔𝒉𝒊𝒑𝒑𝒆𝒓 𝒑𝒍𝒆𝒂𝒔𝒆 𝒃𝒆 𝒗𝒆𝒓𝒚 𝒔𝒐𝒇𝒕 𝒔𝒑𝒐𝒌𝒆𝒏 𝒘𝒊𝒕𝒉 𝒎𝒆 𝒖𝒏𝒍𝒆𝒔𝒔 𝑰 𝒂𝒄𝒕 𝒄𝒓𝒂𝒛𝒚 𝒂𝒓𝒐𝒖𝒏𝒅 𝒑𝒆𝒐𝒑𝒍𝒆! 𝑰 𝒎𝒂𝒚 𝒂𝒄𝒕 𝒗𝒆𝒓𝒚 𝒒𝒖𝒊𝒆𝒕 𝒃𝒖𝒕 𝑰'𝒎 𝒍𝒐𝒖𝒅 𝒂𝒏𝒅 𝒃𝒐𝒂𝒔𝒕𝒇𝒖𝒍 𝒃𝒖𝒕 𝑰 𝒂𝒎 𝒗𝒆𝒓𝒚 𝒔𝒆𝒏𝒔𝒊𝒕𝒊𝒗𝒆 𝒂𝒃𝒐𝒖𝒕 𝒕𝒉𝒊𝒏𝒈𝒔, 𝒉𝒆𝒂𝒗𝒚 𝑫𝒏𝒊𝒖𝒅 𝒕𝒐: 𝑫𝒐𝒖𝒃𝒍𝒆𝒔, 𝒑𝒓*𝒔𝒉𝒊𝒑𝒑𝒆𝒓𝒔, 𝒅*𝒓𝒌 𝒔𝒉𝒊𝒑𝒑𝒆𝒓𝒔, 𝒃𝒐𝒖𝒏𝒅𝒂𝒓𝒚 𝒃𝒓𝒆𝒂𝒌𝒆𝒓𝒔, 𝒘𝒆𝒊𝒓𝒅𝒐𝒔, 𝒛**𝒑𝒉𝒊𝒍𝒆𝒔, 𝑷𝑬𝑫𝒔, 𝒑𝒓𝒆𝒅𝒂𝒕𝒐𝒓𝒔 𝒂𝒏𝒅 𝒓𝒖𝒅𝒆 𝒑𝒆𝒐𝒑𝒍𝒆! 𝒊𝒇 𝑰 𝒃𝒍𝒐𝒄𝒌𝒆𝒅 𝒚𝒐𝒖 𝒋𝒖𝒔𝒕 𝒌𝒏𝒐𝒘 𝒕𝒉𝒂𝒕 𝑰 𝒈𝒆𝒕 𝒕𝒓𝒊𝒈𝒈𝒆𝒓𝒆𝒅 𝒃𝒚 𝒘𝒉𝒂𝒕 𝒚𝒐𝒖 𝒅𝒊𝒅 𝒐𝒓 𝒘𝒉𝒂𝒕 𝒚𝒐𝒖𝒓 𝒇𝒓𝒊𝒆𝒏𝒅 𝒅𝒊𝒅 𝒂𝒏𝒅 𝒚𝒐𝒖 𝒔𝒕𝒊𝒍𝒍 𝒔𝒖𝒑𝒑𝒐𝒓𝒕 𝒕𝒉𝒆𝒎.`
+
+<img width="1007" height="948" alt="1000182056" src="https://github.com/user-attachments/assets/2a5d162a-4ff1-4ce3-8488-e99173b99512" />
